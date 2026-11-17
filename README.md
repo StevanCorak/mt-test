@@ -7,7 +7,7 @@ klnjdpokpjrqknflkjfpkčmrljr
 
 
 
-##Luka je gas lik 
+## Luka je jako gas lik 
 
 
 addadad
