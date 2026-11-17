@@ -5,9 +5,9 @@ kjhadkjhaskdjalkdnamvdkjasjdklasjdjkadkuhd
 
 klnjdpokpjrqknflkjfpkčmrljr
 
-
-
-##Luka je gas lik 
-
+jjjjjj
 
 addadad
+
+
+###guisheouayueo8ueoae
