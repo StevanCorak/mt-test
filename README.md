@@ -8,3 +8,6 @@ klnjdpokpjrqknflkjfpkčmrljr
 
 
 ##Luka je gas lik 
+
+
+addadad
