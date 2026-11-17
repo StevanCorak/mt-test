@@ -4,3 +4,7 @@ kjhadkjhaskdjalkdnamvdkjasjdklasjdjkadkuhd
 
 
 klnjdpokpjrqknflkjfpkčmrljr
+
+
+
+##Luka je gas lik 
