@@ -14,4 +14,4 @@ addadad
 
 okspdjalksjcpokdčnakjjoakadlafjd
 
-jos jedan glas
+jos jedan glas ijos jedahsjkbdkbdlkaslčdakbdlkmdd
