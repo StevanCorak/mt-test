@@ -11,3 +11,7 @@ klnjdpokpjrqknflkjfpkčmrljr
 
 
 addadad
+
+
+
+jos jedan glas
