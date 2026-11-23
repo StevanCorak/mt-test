@@ -7,9 +7,6 @@ klnjdpokpjrqknflkjfpkčmrljr
 
 
 
-## Luka je jako gas lik 
-
-
 addadad
 
 okspdjalksjcpokdčnakjjoakadlafjd
