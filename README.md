@@ -15,3 +15,4 @@ addadad
 okspdjalksjcpokdčnakjjoakadlafjd
 
 jos jedan glas ijos jedahsjkbdkbdlkaslčdakbdlkmdd
+mkločkok
